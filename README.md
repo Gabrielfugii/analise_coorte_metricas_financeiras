@@ -1,0 +1,1 @@
+# analise_coorte_metricas_financeiras
